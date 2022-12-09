@@ -10,3 +10,6 @@
 ![character banner (1)](https://user-images.githubusercontent.com/113330194/206660925-76882a0c-531c-4248-9d6c-c868961a1ba4.png)
 ![character banner](https://user-images.githubusercontent.com/113330194/206661181-ca8270f8-7ac0-49f9-b325-82a4eaec3563.png)
 ![September 2022 Designs (2)](https://user-images.githubusercontent.com/113330194/206665177-cdcb1515-a583-403f-b39d-5c00253d7344.png)
+![September 2022 Designs (3)](https://user-images.githubusercontent.com/113330194/206673853-1742b946-e2cc-4fea-a3ce-e94ecbd52a8f.png)
+![September 2022 Designs (5)](https://user-images.githubusercontent.com/113330194/206675050-e685f264-28b8-4656-8313-556e83496dae.png)
+![September 2022 Designs (4)](https://user-images.githubusercontent.com/113330194/206675487-b2d2e5a6-7e96-439b-b964-e98327d463dd.png)
