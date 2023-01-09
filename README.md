@@ -13,3 +13,4 @@
 ![September 2022 Designs (3)](https://user-images.githubusercontent.com/113330194/206673853-1742b946-e2cc-4fea-a3ce-e94ecbd52a8f.png)
 ![September 2022 Designs (5)](https://user-images.githubusercontent.com/113330194/206675050-e685f264-28b8-4656-8313-556e83496dae.png)
 ![September 2022 Designs (4)](https://user-images.githubusercontent.com/113330194/206675487-b2d2e5a6-7e96-439b-b964-e98327d463dd.png)
+![Announcements](https://user-images.githubusercontent.com/113330194/211278669-822b31fe-300e-4169-a20d-5d36519edd8e.png)
